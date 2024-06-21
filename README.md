@@ -1,0 +1,1 @@
+# adobe-illustrator-activation-2024
